@@ -10,3 +10,7 @@ Roads with beau:
 Roads to foreign policy dynamics
 https://youtu.be/oOFdG87ZJgE
 
+The US, China, the Philippines, and Influence (social media influence operations explained)
+https://youtu.be/uW3XoTXaIXo
+
+
